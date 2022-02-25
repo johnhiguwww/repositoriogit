@@ -1,2 +1,0 @@
-# repositoriogit
-STAR WARS
